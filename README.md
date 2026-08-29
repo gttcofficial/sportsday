@@ -1,2 +1,0 @@
-# sportsday
-G-TTC SPORTSDAY
